@@ -130,8 +130,5 @@ If you have any questions about this Privacy Policy or your personal data, pleas
 
 SkillLink Team
 support@stoiccode.org
+
 https://stoiccode.org
-
-[Your business email]
-
-[Your business website, if any]
